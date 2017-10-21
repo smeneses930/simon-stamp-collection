@@ -6,3 +6,5 @@ profile: lives in cleveland, ohio
 
 
 Stuff about Simon's Stamps Here... Simon is a 15 years old teenager that goes to bloomfield highschool. When he was 10 years old he decided to begin a stamp collection. 
+
+The new york times gave his stamp collection and top review in this sunday's last paper. 
